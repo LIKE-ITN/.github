@@ -1,0 +1,1 @@
+Lidar Knowledge Europe (LIKE) is an Innovative Training Network that fosters training and education of young researchers on emerging laser-based wind measurement technologies and their translation into industrial applications.
